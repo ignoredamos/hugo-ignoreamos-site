@@ -8,6 +8,8 @@ tags:
   - books
 ---
 
+![The Transfers](/static/img/the-transfers-book-cover.jpg)
+
 ### [Buy "The Transfers" on Amazon](https://amzn.to/2sv7HmE "Buy My Book!")
 
 If you buy a paperback copy and we are in the same city, I will:
