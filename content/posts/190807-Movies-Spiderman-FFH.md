@@ -13,7 +13,7 @@ tags:
 
 ### Movies I’ve Seen: Spider-Man: Far From Home (2019) directed by Jon Watts
 
-Actually better than the first one, “Homecoming”, which I FUCKING HATED. Action is ok but about 60% of the movie is still annoying high school bullshit. And now this bullshit is a disturbing love story between Spider-man’s sidekick, Diabetos, and his new girlfriend, that girl from the “Boom Boom Boom Now let me hear you say Way Ho” meme.
+Actually better than the first one, “Homecoming”, which I FUCKING HATED. Action is ok but about 60% of the movie is still annoying high school bullshit. And now this bullshit is a disturbing love story between Spider-man’s sidekick, Diabetos, and his new girlfriend, that girl from the [“Boom Boom Boom Now let me hear you say Way Ho”](https://youtu.be/82VtBxeJH3I) meme.
 
 ### <p>&#9733;&#9733;&#9734;&#9734;&#9734; 2 out of 5</p>
 
