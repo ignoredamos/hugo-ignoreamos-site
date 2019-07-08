@@ -8,7 +8,7 @@ tags:
   - books
 ---
 
-![The Transfers](/the-transfers-book-cover.jpg)
+![The Transfers](/the-transfers-3dCover-eBook.png)
 
 ### [Buy "The Transfers" on Amazon](https://amzn.to/2sv7HmE "Buy My Book!")
 
