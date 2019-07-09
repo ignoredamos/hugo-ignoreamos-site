@@ -15,7 +15,7 @@ tags:
 
 Actually better than the first one, “Homecoming”, which I FUCKING HATED. Action is ok but about 60% of the movie is still annoying high school bullshit. And now this bullshit is a disturbing love story between Spider-man’s sidekick, Diabetos, and his new girlfriend, that girl from the [“Boom Boom Boom Now let me hear you say Way Ho”](https://youtu.be/82VtBxeJH3I) meme.
 
-### <p>&#9733;&#9733;&#9734;&#9734;&#9734; 2 out of 5</p>
+### [&#9733;&#9733;&#9734;&#9734;&#9734; 2 Stars](/posts/190101-rating-system/)
 
 Not bad, but can’t be “a recommend” to anyone. Doesn’t add anything to “Phase 4” of the MCU and can be skipped. Unless I missed some bullshit after credits garbage. (Ok, I just looked it up. Nah, I still don’t fucking care.) Just an OK, dumb superhero movie.
 
